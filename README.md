@@ -1,1 +1,1 @@
-# The-Tri-Nature-Of-Everything
+# The Tri Nature of Everything
